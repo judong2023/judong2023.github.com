@@ -1,6 +1,6 @@
 嘩！句東長橋證券繼續有優惠！仲要加咗碼點！只要喺10月1日至10月31日期間，經句東指定連結 [句東長橋證券注冊鏈接](https://app.longbridgehk.com/ac/oa?account_channel=lb&channel=HB100006&invite-code=UM6SBF) 成功開立長橋證券戶口，送你高達$2,950獎賞：
 
-$300 Apple Gift Card / 超市禮券，經小斯開戶先有，毋須交易，毋須留存 (需填寫google form)
+$300 Apple Gift Card / 超市禮券，經句東開戶先有，毋須交易，毋須留存 (需填寫google form)
 6%年化加息券1張！180天有效！放$10,000 180日可賺約$295！
 TSLA+NVDA+AAPL 各0.05股！約$230至$250
 企業員工開戶時認證再送HK$100現金券
